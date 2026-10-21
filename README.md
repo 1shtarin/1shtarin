@@ -1,2 +1,3 @@
-Hai !! :3 Architecture and Computer Science student based in 📍 *Toronto* .! 
-⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+Bass guitarist, starving artist, hair dye enthusiast ⡞⠳⣄⣀⣠⠞⢷ ֹ۪
+ 
+ [ *Architecture + Computer Science student based in Toronto .!* ]
